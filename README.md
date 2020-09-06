@@ -1,1 +1,1 @@
-# Site-SNT-lyc-e-St-Ambroise-Courtieu
+# Site-SNT-lyc-e-St-Ambroise
